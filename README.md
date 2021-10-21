@@ -1,2 +1,2 @@
 # Cookie-clicker-but-joe-biden
-Friend wanted it
+It is cookie clicker but I replaced some of the textures :)
